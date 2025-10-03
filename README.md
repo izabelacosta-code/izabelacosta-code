@@ -17,7 +17,7 @@
 
 ## 📫 Contato
 
-- LinkedIn: [Seu LinkedIn](https://www.linkedin.com/in/izabela-lima-ti/)
+- LinkedIn: [Izabela Costa](https://www.linkedin.com/in/izabela-lima-ti/)
 
 ---
 
